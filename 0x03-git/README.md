@@ -1,0 +1,1 @@
+readm forr alx zdero day 
